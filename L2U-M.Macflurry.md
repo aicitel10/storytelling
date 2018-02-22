@@ -1,0 +1,1 @@
+Martin Macflurry infecta su ordenador con un virus que le abre un portal dimensional debajo de la cama. esto le permite viajar al pasado para tratar de arreglar los problemas que le rodean( principalmente familiares), pero siempre le sale mal y cuando vuelve al presente todo empeora.
